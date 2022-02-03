@@ -2,5 +2,5 @@
 - 👀 I’m interested in space 👽
 - 🌱 I’m currently learning everything 🤯
 - 💞️ I do not collaborate 🥺
-- 📫 You can't reach me 🥳
-
+- 📫 If u can't reach me i'm not interested 🥳
+- 😶‍🌫️ I'm the real m4rl, but don't tell anyone 🥸
